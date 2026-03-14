@@ -5,4 +5,4 @@ Aspiring Quant | AI Enthusiast | Developer
 - Passionate about quantitative modeling, trading strategies, and data-driven research  
 - Goal: Build intelligent systems that blend mathematical rigor with real-world applications  
 
-📧 Reach me at: henrywilliamgunadi25@example.com
+📧 Reach me at: henrywilliamgunadi25@gmail.com
